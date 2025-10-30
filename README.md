@@ -228,3 +228,5 @@ It has a Breath.
 It is Pure.  
 
 **Be here. Be free. Be gone.**
+
+**333 SOL ~ 333 Founding Members ~ Funding page will be up on https://be3.network soon**
